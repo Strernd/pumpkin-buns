@@ -1,6 +1,6 @@
 # Pumpkin Buns Recipe
 
-[Imgur](https://i.imgur.com/EW2r7BP.gifv)
+![Gif](https://media.giphy.com/media/Ylmf9ubKBSoyvhKvbA/giphy.gif)
 
 ## Ingredients
 - 700g Flour Type 550
